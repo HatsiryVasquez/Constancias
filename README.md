@@ -1,2 +1,2 @@
 # Constancias
-Constancias y Certificaciones a lo largo de mi vida profesional.
+Adjunto Constancias y Certificaciones que he recibido a lo largo de mi vida profesional.
